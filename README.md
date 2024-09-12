@@ -1,0 +1,1 @@
+The following link directs to the Photography Landing Page. https://maleesharuvindi.github.io/Photography-Landing-Page/
